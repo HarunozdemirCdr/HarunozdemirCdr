@@ -27,7 +27,7 @@
 
 <br/>
 
-> *Projelerimin büyük bir kısmı ticari gizlilik ve kurumsal mülkiyet nedeniyle **özel (private)** depolarda tutulmaktadır.*
+> *HARUN ÖZDEMİR*
 
 <br/>
 
